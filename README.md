@@ -1,3 +1,3 @@
 # vrite
 
- **Market analysis:**
+ **Market**
