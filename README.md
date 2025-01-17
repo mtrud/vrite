@@ -1,1 +1,9 @@
 # vrite
+
+ 
+
+
+
+
+
+**Market analysis:**
