@@ -1,9 +1,3 @@
 # vrite
 
- 
-
-
-
-
-
-**Market analysis:**
+ **Market analysis:**
